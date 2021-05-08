@@ -1,2 +1,2 @@
 # Wallpapers
-A couple of wallpapers that I've made or modified.
+Some wallpapers I made or I modified.
